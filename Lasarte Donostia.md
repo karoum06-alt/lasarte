@@ -1,0 +1,191 @@
+[lasarte](#top)
+
+- [Inicio](#top)
+- [Historia](#historia)
+- [Carta](#menu)
+- [Galería](#galeria)
+- [Ubicación](#ubicacion)
+- [Contacto](#reservas)
+
+[Reservar](#reservas)
+
+[Inicio](#top) [Historia](#historia) [Carta](#menu) [Galería](#galeria) [Ubicación](#ubicacion) [Reservar](#reservas)
+
+![](img/sala-2.webp)
+
+# lasarte
+
+Una tradición vasca viva.
+
+Sabores de siempre. Generaciones de recuerdos.
+
+DONOSTIA · PARTE VIEJA
+
+[Descubre la carta](#menu) [Conoce nuestra historia](#historia)
+
+Nuestra historia
+
+## Un lugar *con historia.*
+
+Hay lugares que son más que restaurantes. Forman parte de un barrio, de la identidad de una ciudad y de los recuerdos de quienes cruzan su puerta.
+
+Lasarte lleva dentro el espíritu de la hospitalidad tradicional donostiarra, donde la buena comida, las caras conocidas y los momentos compartidos siempre han ido de la mano. Las fotografías de nuestras paredes no son decoración: son la casa.
+
+**Parte Vieja**Nuestro barrio
+
+**Pintxos**En la barra, cada día
+
+**Dos plantas**Comedor y sala de fiestas
+
+![Fotografía antigua en blanco y negro: siete cocineros con chaquetilla y gorro blanco posan en una sala](img/chefs.webp)
+
+La brigada de cocina, de blanco y con gorro alto.
+
+![Fotografía antigua: cocineros tocan barricas con palillos en una tamborrada nocturna](img/danborrada.webp)
+
+Barricas, palillos y gorros: noche de tamborrada.
+
+![Retrato de grupo de cocineros, fotografía histórica](img/chefs.webp)
+
+En nuestras paredes
+
+## Antes de la carta, *estuvieron ellos.*
+
+Chaquetillas impecables, brazos cruzados y la mirada de quien sabe lo que hace. Estas fotografías cuelgan en Lasarte para recordarnos de dónde viene el oficio: de las manos y del trabajo de quienes nos precedieron.
+
+Archivo Lasarte · Fotografía original
+
+![Cocineros tamborileros sonriendo con barricas de madera](img/danborrada.webp)
+
+20 de enero: la ciudad entera suena a barrica.
+
+Danborrada
+
+## Donostia *se toca* a golpe de barrica.
+
+Cada 20 de enero, durante 24 horas, cocineros y tamborreros llenan la Parte Vieja. Cuenta atrás para la próxima.
+
+**--**días
+
+**--**horas
+
+**--**min
+
+**--**seg
+
+Toca la barrica. Golpe en el centro, o pulsa para escuchar el ritmo.
+
+La barra
+
+## Pintxos, *uno a uno.*
+
+Desliza
+
+01 / 16
+
+pintxo
+
+La carta
+
+## De la barra *a la mesa.*
+
+Pintxos de siempre, raciones para compartir y cocina de casa. Toca + para montar tu ronda y ver cuánto suma.
+
+### Menú *Lasarte*
+
+13,00 €elige uno
+
+Todos con huevos y patatas. La receta de la casa.
+
+Servicio de pan0,75 € / persona
+
+Precios en euros, IVA incluido. Consulta alérgenos con nuestro personal.
+
+0 · mi ronda**0,00 €**
+
+Tu selección Mi ronda Suma de carta0,00 € Una guía para pedir en barra. Pan aparte (0,75 € por persona).
+
+Galería
+
+## Recuerdos en las paredes. *Momentos en la mesa.*
+
+![](img/chefs.webp)
+
+Reservas
+
+## Arriba o abajo. *¿Dónde te sentamos?*
+
+Prepara tu solicitud en cuatro pasos. La confirmamos contigo por teléfono.
+
+### ¿Dónde quieres estar?
+
+Toca una planta para elegirla.
+
+### ¿Qué tipo de reserva?
+
+¿Algo especial?
+
+### ¿Cuándo venís?
+
+Personas
+
+2
+
+Hora preferida
+
+### ¿A nombre de quién?
+
+Nombre Teléfono Email (opcional) Comentarios
+
+Tu solicitud
+
+Solicitud sin confirmar. La confirmamos contigo por teléfono.
+
+943 58 50 96
+
+![El logotipo de Lasarte en metal sobre la pared del local](img/logo-pared.webp)
+
+Nos encontrarás por la L.
+
+Dónde estamos
+
+## En el corazón *de la Parte Vieja.*
+
+Kalea **Arrandegi**
+
+Arrandegi Kalea, 8\
+20003 Donostia / San Sebastián\
+Gipuzkoa
+
+943 58 50 96
+
+[Cómo llegar](https://www.google.com/maps/dir/?api=1&destination=Arrandegi+Kalea+8,+20003+Donostia,+Gipuzkoa) [Ver en Google Maps](https://www.google.com/maps/search/?api=1&query=Lasarte+Arrandegi+Kalea+8+20003+Donostia)
+
+lasarte
+
+Una tradición vasca viva.
+
+Cocina tradicional. Hospitalidad auténtica. Generaciones de recuerdos.
+
+#### Navegación
+
+- [Historia](#historia)
+- [Carta](#menu)
+- [Galería](#galeria)
+- [Reservar](#reservas)
+
+#### Contacto
+
+- Arrandegi Kalea, 8\
+  20003 Donostia
+- 943 58 50 96
+- [Cómo llegar](https://www.google.com/maps/dir/?api=1&destination=Arrandegi+Kalea+8,+20003+Donostia,+Gipuzkoa)
+
+#### Idioma
+
+- 
+- 
+
+© 2026 Lasarte · DonostiaParte Vieja · Alde Zaharra
+
+Llamar[Reservar](#reservas)
